@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ChiQt
+- 👋 Hi, I’m Chi Xiejian, a student in Xi'an Jiaotong University.
 - I'm interested in something innovative and stimulating, go research!
 - you can contact me via 📫 qtzgram@foxmail.com
 
